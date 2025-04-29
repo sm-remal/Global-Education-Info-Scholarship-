@@ -1,1 +1,1 @@
-# Global-Education-Info-Scholarship-
+# Global-Education-Info-Scholarship
